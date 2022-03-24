@@ -1,7 +1,5 @@
 ### Hi I'M hardik sharma 👋 
-
-<!--
-**hardikprogramer/hardikprogramer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+https://discord.gg/pHhk7BCK
 
 Here are some ideas to get you started:
 
